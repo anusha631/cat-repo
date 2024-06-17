@@ -1,1 +1,1 @@
-To the mind that is still, the whole universe surrenders
+To the mind that is still, the whole universe surrenders!!!!
